@@ -16,3 +16,9 @@ Los ejercicios de fuerza son entrenamientos musculares en los que se utilizan di
 2. Realiza la actividad dependiento del grupo o grupos musculares que se quieran trabajar (flexiones de brazos, dominadas,zancadas con peso,plancha estática.)
 3. Termina con un enfriamiento y estiramientos.
 
+## Consejos
+
+- Elije un peso adecuado e intenta ir aumentando progresivamente sin sobre exigirte.
+- No sacrifiques la forma por levantar más peso.
+- Descansa lo suficiente entre sesiones de entrenamiento para permitir la recuperación muscular.
+- Combina el entrenamiento de fuerza con ejercicios de flexibilidad.
