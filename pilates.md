@@ -13,3 +13,8 @@ El yoga es una disciplina que combina posturas (asanas), respiración controlada
 - Aumenta la flexibilidad y la alineación.
 - Mejora la postura y reduce el riesgo de dolores de espalda.
 - Aumenta la conciencia corporal y la coordinación.
+
+**Consejos**:  
+- Practica la respiración adecuada para maximizar los beneficios.
+- Mantén una buena alineación durante los ejercicios.
+- Empieza con clases guiadas si eres principiante para aprender la técnica.
