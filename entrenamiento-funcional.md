@@ -13,3 +13,8 @@ El entrenamiento funcional busca mejorar la fuerza, equilibrio, flexibilidad y c
 - Aumenta la estabilidad del core (zona media del cuerpo).
 - Mejora la coordinación y el equilibrio.
 - Reduce el riesgo de caídas o lesiones en la vida diaria.
+
+**Consejos**:  
+- Enfócate en la forma antes de aumentar la intensidad.
+- Integra movimientos que trabajen todo el cuerpo para maximizar los beneficios.
+- Escucha a tu cuerpo y adapta los ejercicios según tu nivel de habilidad.
