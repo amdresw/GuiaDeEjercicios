@@ -6,3 +6,9 @@ El CrossFit es un programa de entrenamiento de alta intensidad que combina ejerc
 **Instrucciones**:  
 - Realiza movimientos funcionales como levantamientos, saltos, carreras y empujes.
 - Cada sesión de CrossFit suele durar entre 30-60 minutos y combina ejercicios de fuerza y resistencia.
+
+**Beneficios**:  
+- Mejora la fuerza y resistencia general.
+- Quema muchas calorías en poco tiempo.
+- Fomenta la cohesión y motivación grupal.
+- Aumenta la capacidad cardiovascular y muscular.
