@@ -7,3 +7,9 @@ El yoga es una disciplina que combina posturas (asanas), respiración controlada
 - Utiliza una esterilla o equipos como el reformer para realizar los ejercicios.
 - Mantén una respiración fluida y consciente durante cada movimiento.
 - Realiza movimientos lentos y controlados, concentrándote en la precisión.
+
+**Beneficios**:  
+- Mejora la fuerza y estabilidad del core.
+- Aumenta la flexibilidad y la alineación.
+- Mejora la postura y reduce el riesgo de dolores de espalda.
+- Aumenta la conciencia corporal y la coordinación.
