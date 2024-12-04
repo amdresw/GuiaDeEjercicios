@@ -13,3 +13,8 @@ El boxeo es un deporte de combate que combina movimientos rápidos de los puños
 - Aumenta la agilidad y la coordinación.
 - Reduce el estrés y mejora la salud mental.
 - Quema calorías rápidamente.
+
+**Consejos**:  
+- Comienza con clases de boxeo o entrenamiento guiado para aprender la técnica correcta.
+- Usa guantes y vendas para proteger tus manos.
+- Mantén la guardia alta y no te distraigas con golpes innecesarios.
